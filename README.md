@@ -113,7 +113,7 @@ where I can contribute to scalable, AI-driven platforms.
 
 ## 🌍 Connect With Me
 
-[LinkedIn]((https://www.linkedin.com/in/ammar-raza-06346a26b/)) 
+[LinkedIn](https://www.linkedin.com/in/ammar-raza-06346a26b/)
 
 
 
